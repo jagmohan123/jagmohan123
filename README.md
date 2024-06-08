@@ -11,7 +11,7 @@ Languages I know: C/C++, JavaScript, Java, PHP.
 〰️〰️〰️〰️〰️〰️〰️〰️〰️〰️〰️〰️〰️〰️〰️〰️〰️〰️
 
 My socials are listed below
-LinkedIn at Jagmohan-Rai1
+LinkedIn at Jagmohan-Rai1[https://www.linkedin.com/in/jagmohan-rai1/](https://www.linkedin.com/in/jagmohan-rai1/),
 Portfolio/Website at [https://jagmohan123.github.io/PortfolioWebsite/.bio.link](https://jagmohan123.github.io/New-PortFolio/)
 Instagram at pranayguptaa
 Mail me at jagmohanrai082@gmail.com regarding any work or if you just wanna connect
